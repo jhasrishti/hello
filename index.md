@@ -22,7 +22,9 @@ In the past 12 years, she has worked in the media with publications like the Hin
 
 ## MY WORK SAMPLES
 
-
+- The<a href = "https://www.outlookindia.com/website/story/entertainment-news-adapt-or-die-is-indian-fashion-ready-to-handle-the-pandemic/399904"> Outlook</a>
+- Hindustan<a href = "https://www.hindustantimes.com/sex-and-relationships/living-in-the-times-of-social-distancing-why-the-hyper-bored-must-revisit-memories-right-now/story-iorFyY4JSRS8fNmTHVDkkI.html"> Times</a>
+- India<a href = "​​https://www.indiatoday.in/magazine/supplement/story/20170116-art-fashion-manjunath-kamath-puneet-kaushik-sir-peter-cook-985536-2017-01-06"> Today</a>
 
 
 ---
