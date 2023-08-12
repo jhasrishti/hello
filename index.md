@@ -7,11 +7,11 @@ In the past 12 years, she has worked in the media with publications like the Hin
 #### Get in <a href = "mailto: jha.srishti@gmail.com">touch!</a>
 ---
 
-## BOOKS
+## WORK
+#### <a href = "https://penguin.co.in/book/the-queen-of-indian-pop/#:~:text=Usha%20Uthup%2C%20India%27s%20undisputed%20icon,and%20continues%20to%20do%20so">The Queen of Indian Pop: The Authorised Biography of Usha Uthup</a>
 
 <img src="https://cloudfront.penguin.co.in/wp-content/uploads/2022/07/9780670095872.jpg"/>
 
-#### The Queen of Indian Pop
 
 ## ARTICLES ON THE QUEEN OF INDIAN POP
 
