@@ -20,11 +20,12 @@ In the past 12 years, she has worked in the media with publications like the Hin
 ">Book Review: 'The Queen of Indian Pop: The Authorised Biography of Usha Uthup': The Times of India</a>
 - <a href = "https://www.thebookreviewindia.org/arc-of-a-fabled-career">Arc of a Fabled Career: The Book Review India</a>
 
-## MY WORK SAMPLES
+## WRITTEN ARTICLES
 
-- The<a href = "https://www.outlookindia.com/website/story/entertainment-news-adapt-or-die-is-indian-fashion-ready-to-handle-the-pandemic/399904"> Outlook</a>
-- Hindustan<a href = "https://www.hindustantimes.com/sex-and-relationships/living-in-the-times-of-social-distancing-why-the-hyper-bored-must-revisit-memories-right-now/story-iorFyY4JSRS8fNmTHVDkkI.html"> Times</a>
-- India<a href = "​​https://www.indiatoday.in/magazine/supplement/story/20170116-art-fashion-manjunath-kamath-puneet-kaushik-sir-peter-cook-985536-2017-01-06"> Today</a>
+- <a href = "https://www.outlookindia.com/website/story/entertainment-news-adapt-or-die-is-indian-fashion-ready-to-handle-the-pandemic/399904"> Adapt or Die: The Present, Future and the Business of Indian Fashion: The Outlook</a>
+- <a href = "https://www.hindustantimes.com/sex-and-relationships/living-in-the-times-of-social-distancing-why-the-hyper-bored-must-revisit-memories-right-now/story-iorFyY4JSRS8fNmTHVDkkI.html"> Lakme Fashion Week AW 2021: Caught Between The New Normal And Old Patterns: Hindustan Times</a>
+- <a href = "​​https://www.indiatoday.in/magazine/supplement/story/20170116-art-fashion-manjunath-kamath-puneet-kaushik-sir-peter-cook-985536-2017-01-06">Of beauty, survival, criticism, love and pain: Why Susan Sontag will always be relevant: India Today</a>
+- <a href = "https://www.hindustantimes.com/fashion-and-trends/dressing-down-pantsuits-embellishments-and-sheer-the-era-of-extravagance-is-over/story-wo2OXWcS0miaIEAFUCVcsO.html">Dressing down: Pantsuits, embellishments and sheer, the era of extravagance is over: Hindustan Times</a>
 
 
 ---
