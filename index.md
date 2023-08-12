@@ -15,10 +15,10 @@ In the past 12 years, she has worked in the media with publications like the Hin
 
 ## ARTICLES ON THE QUEEN OF INDIAN POP
 
-- The <a href = "https://www.thehindu.com/life-and-style/usha-uthup-discusses-her-biography-the-queen-of-indian-pop/article65630922.ece">Hindu</a>
-- The <a href = "https://m.timesofindia.com/life-style/books/reviews/book-review-the-queen-of-indian-pop-the-authorised-biography-of-usha-uthup/articleshow/90269064.cms?fbclid=IwAR0Y4YzdrvHE9c2d13RYD8D82lS9US_6GTNsBU0JPdeooQZE7c9hEg1-wBU&mibextid=Zxz2cZ
-">Times of India</a>
-- The Book Review <a href = "https://www.thebookreviewindia.org/arc-of-a-fabled-career">India</a>
+- <a href = "https://www.thehindu.com/life-and-style/usha-uthup-discusses-her-biography-the-queen-of-indian-pop/article65630922.ece">Usha Uthup discusses her biography ‘The Queen of Indian Pop’: The Hindu</a>
+- <a href = "https://m.timesofindia.com/life-style/books/reviews/book-review-the-queen-of-indian-pop-the-authorised-biography-of-usha-uthup/articleshow/90269064.cms?fbclid=IwAR0Y4YzdrvHE9c2d13RYD8D82lS9US_6GTNsBU0JPdeooQZE7c9hEg1-wBU&mibextid=Zxz2cZ
+">Book Review: 'The Queen of Indian Pop: The Authorised Biography of Usha Uthup': The Times of India</a>
+- <a href = "https://www.thebookreviewindia.org/arc-of-a-fabled-career">Arc of a Fabled Career: The Book Review India</a>
 
 ## MY WORK SAMPLES
 
