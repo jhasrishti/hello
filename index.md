@@ -26,7 +26,9 @@ In the past 12 years, she has worked in the media with publications like the Hin
 - <a href = "https://www.hindustantimes.com/sex-and-relationships/living-in-the-times-of-social-distancing-why-the-hyper-bored-must-revisit-memories-right-now/story-iorFyY4JSRS8fNmTHVDkkI.html"> Lakme Fashion Week AW 2021: Caught Between The New Normal And Old Patterns: Hindustan Times</a>
 - <a href = "​​https://www.indiatoday.in/magazine/supplement/story/20170116-art-fashion-manjunath-kamath-puneet-kaushik-sir-peter-cook-985536-2017-01-06">Of beauty, survival, criticism, love and pain: Why Susan Sontag will always be relevant: India Today</a>
 - <a href = "https://www.hindustantimes.com/fashion-and-trends/dressing-down-pantsuits-embellishments-and-sheer-the-era-of-extravagance-is-over/story-wo2OXWcS0miaIEAFUCVcsO.html">Dressing down: Pantsuits, embellishments and sheer, the era of extravagance is over: Hindustan Times</a>
-
+- <a href = "https://www.hindustantimes.com/more-lifestyle/the-curious-case-of-dreaming-in-the-times-of-a-global-pandemic/story-ktpvaz2GUuKWJn4aN9vc8H.html">The curious case of dreaming in the times of a global pandemic: Hindustan Times</a>
+- <a href = "https://www.hindustantimes.com/sex-and-relationships/living-in-the-times-of-social-distancing-why-the-hyper-bored-must-revisit-memories-right-now/story-iorFyY4JSRS8fNmTHVDkkI.html">Living in the times of social distancing: Why the hyper bored must revisit memories right now: Hindustan Times</a>
+-<a href = "https://www.hindustantimes.com/fashion-and-trends/letters-from-my-grandfather-francesca-cartier-brickell-on-her-earliest-memory-of-a-cartier-jewellery-the-india-link-and-how-she-keeps-the-family-story-alive/story-QAio4crOA72n729xc9JYnL.html">Letters from my Grandfather: Francesca Cartier Brickell on her earliest memory of a Cartier jewellery, the India link and how she keeps the family story alive: Hindustan Times</a>
 
 ---
 
