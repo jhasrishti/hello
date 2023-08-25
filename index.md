@@ -1,7 +1,4 @@
-
-#### Srishti Jha is a writer, editor and journalist. 
-
-In the past 12 years, she has worked in the media with publications like the Hindustan Times and India Today, followed by translation and screenwriting projects. She has extensively covered art, culture, fashion, travel, heritage, languages, books, and human narratives in her work. She is currently working on her first novel.
+#### In the past 12 years, she has worked in the media with publications like the Hindustan Times and India Today, followed by translation and screenwriting projects. She has extensively covered art, culture, fashion, travel, heritage, languages, books, and human narratives in her work. She is currently working on her first novel.
 
 
 
