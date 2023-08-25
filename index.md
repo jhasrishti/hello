@@ -4,7 +4,7 @@
 In the past 12 years, she has worked in the media with publications like the Hindustan Times and India Today, followed by translation and screenwriting projects. She has extensively covered art, culture, fashion, travel, heritage, languages, books, and human narratives in her work. She is currently working on her first novel.
 
 
-#### Get in <a href = "mailto: jha.srishti@gmail.com">touch!</a>
+
 ---
 
 ## WORK
@@ -28,7 +28,7 @@ In the past 12 years, she has worked in the media with publications like the Hin
 - <a href = "https://www.hindustantimes.com/fashion-and-trends/dressing-down-pantsuits-embellishments-and-sheer-the-era-of-extravagance-is-over/story-wo2OXWcS0miaIEAFUCVcsO.html">Dressing down: Pantsuits, embellishments and sheer, the era of extravagance is over: Hindustan Times</a>
 - <a href = "https://www.hindustantimes.com/more-lifestyle/the-curious-case-of-dreaming-in-the-times-of-a-global-pandemic/story-ktpvaz2GUuKWJn4aN9vc8H.html">The curious case of dreaming in the times of a global pandemic: Hindustan Times</a>
 - <a href = "https://www.hindustantimes.com/sex-and-relationships/living-in-the-times-of-social-distancing-why-the-hyper-bored-must-revisit-memories-right-now/story-iorFyY4JSRS8fNmTHVDkkI.html">Living in the times of social distancing: Why the hyper bored must revisit memories right now: Hindustan Times</a>
--<a href = "https://www.hindustantimes.com/fashion-and-trends/letters-from-my-grandfather-francesca-cartier-brickell-on-her-earliest-memory-of-a-cartier-jewellery-the-india-link-and-how-she-keeps-the-family-story-alive/story-QAio4crOA72n729xc9JYnL.html">Letters from my Grandfather: Francesca Cartier Brickell on her earliest memory of a Cartier jewellery, the India link and how she keeps the family story alive: Hindustan Times</a>
-
----
+- <a href = "https://www.hindustantimes.com/fashion-and-trends/letters-from-my-grandfather-francesca-cartier-brickell-on-her-earliest-memory-of-a-cartier-jewellery-the-india-link-and-how-she-keeps-the-family-story-alive/story-QAio4crOA72n729xc9JYnL.html">Letters from my Grandfather: Francesca Cartier Brickell on her earliest memory of a Cartier jewellery, the India link and how she keeps the family story alive: Hindustan Times</a>
+- <a href = "https://www.hindustantimes.com/art-and-culture/artist-marcel-dzama-s-on-folklores-hybrid-characters-and-why-his-art-exists-in-a-world-of-the-subconscious/story-SDqINnd72n87pKZPemaifJ.html">Artist Marcel Dzama’s on folklores, hybrid characters, and why his art exists in a world of the subconscious</a>
+- <a href = "https://www.hindustantimes.com/sex-and-relationships/happy-friendship-day-2019-how-to-be-a-friend-in-the-times-of-social-media/story-dwgviAupzLy6TTFQgPKOyK.html">Famous friendships and reckoning: How to be a friend in times of social media</a>
 
